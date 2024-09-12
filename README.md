@@ -5,9 +5,9 @@
 
 - 🔭 I’m currently working on **Myntra Brand Dataset**
 
-- 🌱 I’m currently learning **Power BI**
+- 🌱 I’m currently learning **Machine Learning**
 
-- 💬 Ask me about **Python, SQL, Advanced Excel, Power BI**
+- 💬 Ask me about **Python, SQL, Advanced Excel, Power BI and Basic ML**
 
 - 📫 How to reach me **shrutipunekar0702@gmail.com**
 
