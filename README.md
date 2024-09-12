@@ -11,7 +11,7 @@
 
 - 📫 How to reach me **shrutipunekar0702@gmail.com**
 
-- 📄 Know about my experiences [https://1drv.ms/b/c/6a7f8055f0982a84/Ef4wLFMPWUtLukt2y__ARvoBtm6qOTgppUEAcqn_u6z6pw?e=gq5DDD](https://1drv.ms/b/c/6a7f8055f0982a84/Ef4wLFMPWUtLukt2y__ARvoBtm6qOTgppUEAcqn_u6z6pw?e=gq5DDD)
+- 📄 Know about my experiences [https://1drv.ms/b/c/6a7f8055f0982a84/EQsJWTFDLXdGp8yrH86936YBDsmkdHa4sJVdRab-GPy_dg?e=5qZdev](https://1drv.ms/b/c/6a7f8055f0982a84/EQsJWTFDLXdGp8yrH86936YBDsmkdHa4sJVdRab-GPy_dg?e=5qZdev)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
